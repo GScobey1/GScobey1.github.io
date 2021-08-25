@@ -1,1 +1,1 @@
-Definitive proof the The Hoz cheats.
+Uh oh, retard alert! Retard alert!
