@@ -1,5 +1,5 @@
 ## Who is The Hoz?
-   The Hoz, also known as Caroline Hosmer, is a notrious cheater in all games. Whether it's being colorblind in Candy Land or lag swithcing in Garfield Kart, she cheats.
+   The Hoz, also known as Caroline Hosmer, is a notrious cheater in all games. Whether it's being colorblind in Candy Land or lag switching in Garfield Kart, she cheats.
  
 ## What is The Hoz?
    A Hosmer. They all cheat.
